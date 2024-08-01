@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: arrasta pra cima
 - 😄 Pronouns: ele delas
-- ⚡ Fun fact: 
+- ⚡ Fun fact: o pai e lenda no ff id ...228159683 ngm clica com o pae😉
 
